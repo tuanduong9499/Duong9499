@@ -31,4 +31,7 @@ I love turning creative ideas into polished, performant products — handling ev
 Thank you for visiting my profile! ✨  
 I'm always excited to work on new challenging game projects. Feel free to reach out!
 
-📧 Contact me: tuanduong9499@gmail.com
+  📫 Let's Connect
+Games Portfolio: [Napa Global Games](https://napa-games.web.app/)
+Upwork: [Hire me on Upwork](https://www.upwork.com/freelancers/~012721b02e97fc00c7)
+Email: tuanduong9499@gmail.com
